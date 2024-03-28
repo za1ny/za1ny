@@ -4,6 +4,8 @@
 
 ### Please follow and keep up to date on whatever I am currently working on 😎
 
+<img src=https://www.pinterest.com/pin/806496245758955053/>
+
 <!--
 **za1ny/za1ny** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
