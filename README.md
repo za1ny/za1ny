@@ -4,7 +4,7 @@
 
 ### Please follow and keep up to date on whatever I am currently working on 😎
 
-![image](https://github.com/za1ny/za1ny/assets/95107867/b04a74d7-0172-44f9-8deb-e91168b6b19d)
+
 ![image](https://github.com/za1ny/za1ny/assets/95107867/1beaa6bd-1004-4666-a590-84251944c53b)
 
 
